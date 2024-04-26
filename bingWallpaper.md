@@ -1,4 +1,6 @@
 ## Bing WallPaper
+2024-04-27 | [Tree of Life, Kalaloch Beach, Olympic National Park, Washington (© Abbie Warnock-Matthews/Shutterstock)](https://cn.bing.com/th?id=OHR.KalalochTree_EN-US5565386489_UHD.jpg) 
+
 2024-04-26 | [Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_UHD.jpg) 
 
 2024-04-24 | [Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US5011442234_UHD.jpg) 
