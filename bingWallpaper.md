@@ -1,4 +1,6 @@
 ## Bing WallPaper
+2024-10-12 | [Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg) 
+
 2024-10-09 | [Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg) 
 
 2024-10-08 | [The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_UHD.jpg) 
