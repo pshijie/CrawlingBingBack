@@ -1,4 +1,6 @@
 ## Bing WallPaper
+2024-11-13 | [Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg) 
+
 2024-11-11 | [Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg) 
 
 2024-11-10 | [Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg) 
