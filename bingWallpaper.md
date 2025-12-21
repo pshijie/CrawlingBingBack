@@ -1,4 +1,6 @@
 ## Bing WallPaper
+2025-12-22 | [Dawn light through frosty trees, Sweden (© Schon/Getty Images)](https://cn.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg) 
+
 2025-12-21 | [Christmas star lanterns, Germany (© artas/Getty Images)](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg) 
 
 2025-12-19 | [Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg) 
